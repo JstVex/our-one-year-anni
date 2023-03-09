@@ -1,5 +1,5 @@
 # our-one-year-anni
-codes for our one year anniversary website ^^
+our one year anniversary website ^^
 
 happy one year anniversay my baby boo :33
 
